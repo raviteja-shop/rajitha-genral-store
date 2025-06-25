@@ -1,0 +1,1 @@
+# rajitha-genral-store
